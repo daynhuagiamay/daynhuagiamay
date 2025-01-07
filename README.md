@@ -9,3 +9,5 @@ Sản phẩm của chúng tôi được tạo thành từ nguyên liệu nhựa 
 Tất cả các sản phẩm sợi nhựa giả mây thiên nhiên của chúng tôi được bảo hành dài hạn với những tính năng vượt trội như: Chịu được nhiệt độ môi trường, không bị rạn, nứt hay biến đổi hình dạng, rất ít bị ảnh hưởng bởi nước mưa, nước biển, hay các loại chất axit chlorine vì vậy thích hợp cho việc sản xuất các sản phẩm sử dụng ngoài trời. Đa dạng về kích thước, mẫu mã và màu sắc, rất thuận tiện cho việc gia công các sản phẩm có tính mỹ thuật cao, đặc biệt cho phép tận dụng tối đa nguyên liệu, chống lãng phí trong quá trình gia công, chùi rửa dễ dàng với khăn ướt, hoặc xà phòng hay các chất tẩy rửa thông thường khác.
 
 CÔNG TY TNHH MTV SẢN XUẤT DÂY NHỰA GIẢ MÂY Chân thành cảm ơn những doanh nghiệp đã tin tưởng và chọn sản phẩm của Công Ty chúng tôi ..!
+
+Website: https://www.daynhuagiamay.com
